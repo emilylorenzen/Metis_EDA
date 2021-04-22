@@ -1,0 +1,2 @@
+# **Question/Need**
+Prior to the COVID-19 pandemic there was a net influx of people moving to NYC. This influx was disrupted by lockdown and resulted in a decrease in rental prices and therefore, residential real estate prices. However, NYC is beginning to experience a reemergence due to vaccinations and reduction of overall COVID-19 cases. Therefore, it is an opportune time to residential real estate developers to invest in previously burdgeoning neighborhoods of NYC and nearby areas. 
